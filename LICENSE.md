@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with elite Polymarket bot | smart-contract-integration + take-profit-orders, the #1 bot. Includes smart-contract-integration and take-profit-orders
 
 
 
